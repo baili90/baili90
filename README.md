@@ -4,7 +4,7 @@ If you want to communicate with me about your learning progress, please feel fre
 
 Urs, 
 
-Sinsecely
+Sincerely
 
 <!---
 baili90/baili90 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
